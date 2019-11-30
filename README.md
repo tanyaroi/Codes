@@ -1,2 +1,2 @@
 # Codes
-Paradigm shit in urban planning
+Paradigm shift in urban planning
